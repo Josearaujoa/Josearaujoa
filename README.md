@@ -21,7 +21,7 @@
 "Se tem que lutar na chuva, treine na tempestade."
 
 ## Contatos:
-- E-mail: anntoniocarmoaraujo@gmail.com
+- E-mail: antoniocarmoaraujo@gmail.com
 
 - Celular: (011) 97786-7145
 
